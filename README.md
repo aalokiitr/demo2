@@ -1,8 +1,9 @@
 hjgkjhk;lk;lk
-yutuiopkll;,
- n kjm;l.';;
- fgjll
- '
 tuiooiipokkmbjbvgg
+Department of
+Computer Science
+and Application
+BCA, MCA
+B.Tech. , M.Tech. and So on.
 Vivekanand Global University, Jaipur
- ggjjl;;l'
+Next Gen Academy
